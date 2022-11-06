@@ -1,0 +1,1 @@
+türkce yerine iinhilizce yazıldı
