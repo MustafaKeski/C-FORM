@@ -1,1 +1,1 @@
-türkce yerine iinhilizce yazıldı
+Türkce yerine ingilizce yazıldı
